@@ -1,5 +1,5 @@
-
-# -The Place Where **Stock Manipulation** is Done on a Daily Basis
+# ONEillsion - Where Magic Happens
+---
 
 
 
@@ -10,4 +10,6 @@
 
 >> We use a variation of **insider trading** which, so you know, is very **illegal**.
 
-> To counter that, we have a team of professionals specializing in **money laundering**. 
+> To not face legal action, we have a team of professionals specializing in **money laundering**, and **corruption and blackmail** structeres.
+
+>  
