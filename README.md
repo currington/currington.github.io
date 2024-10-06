@@ -15,4 +15,4 @@
 
 ---
 
->> Our mission is to make the market *more* **accessible** and **profitable**, for ***everyone***.
+>> Our mission is to make the market *more* **profitable** for the ones with *the* **vision**.
