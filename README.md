@@ -1,7 +1,7 @@
 # ONEillsion - Where Magic Happens
 ---
 
-
+---
 
 ## So, What Exactly is **ONEillusion**?
 
@@ -10,6 +10,6 @@
 
 >> We use a variation of **insider trading** which, so you know, is very **illegal**.
 
-> To not face legal action, we have a team of professionals specializing in **money laundering**, and **corruption and blackmail** structeres.
+> To avoid facing legal action, we have a team of professionals specializing in **money laundering**, and **corruption and blackmail** structeres.
 
->  
+---
