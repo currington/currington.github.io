@@ -4,10 +4,10 @@
 
 ---
 
-## **So, What Exactly is ONEillusion?**
+## **So, What Exactly is ONEillusion®?**
 ---
 
-> ONEillusion  the hub of the most **Ambitious** Traders out there.
+> ONEillusion is the hub of the most **Ambitious** Traders out there.
 
 > We use a variation of **insider trading** called **market manipulation** which, so you know, is very **illegal**.
 
