@@ -17,8 +17,8 @@
 
 >> Our mission is to make the market *more* **profitable** for ***EVERYONE***.
 
-*Call +48 669 730 880 or meet with your closest ONEillusion™ broker.*
+*Call or meet with your closest ONEillusion™ broker to register.*
 
 ---
 
-ONEillusion™ by the Związek Maklerów Rynku Pozagiełdowego® © 2025 
+ONEillusion™ by the Związek Maklerów Rynku Pozagiełdowego® © 2025 | *This is a backup site in case of technical issues.*
