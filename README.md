@@ -7,11 +7,11 @@
 ## **So, What Exactly is ONEillusion™?**
 ---
 
-> ONEillusion is the broker that has the ability to provide its clients with consistent results and light-speed trade processing. 
+> ONEillusion is the international broker, instated by the Association of Over-the-Counter Brokers® of Poland, that has the ability to provide its clients with consistent results and light-speed trade processing for Foreigners inside and Polish citizens outside of Poland alike. 
 
 > We have a specialized, outside team of analysts providing us with data from institutions like **Goldman Sachs**, **Rothschild & Co.**, **CBH Compagnie Bancaire Helvétique**, and others.
 
-> To help ***our clients*** avoid losses, we have (I) created comprehensive training courses you can easily sign up for.
+> To help ***our clients*** avoid losses, we have created comprehensive training courses you can easily sign up for.
 
 ---
 
@@ -21,4 +21,4 @@
 
 ---
 
-ONEillusion™ by the United Over-The-Counter Brokers of Poland® © 2025 
+ONEillusion™ by the Związek Maklerów Rynku Pozagiełdowego® © 2025 
