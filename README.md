@@ -1,24 +1,25 @@
-# **ONEillusion™**
-# ***THE Brokerage outside of Wall Street***
+# **Currington Sterling®**
+# ***The Brokerage both outside & inside of Wall Street***
+---
+![89cbb8b2-8a7f-4349-ac7b-88bff8aeeb07](https://github.com/user-attachments/assets/41cafcf5-c32c-4d4a-90e0-ab5534b2e6c8)
 ---
 
+## **So, What Exactly is Currington Sterling®?**
 ---
 
-## **So, What Exactly is ONEillusion™?**
----
+> Currington, a subsidiary of Currington Securities®, is the European broker you can trust that has the ability and will to provide its clients with consistent results and light-speed trade processing of Over- 
 
-> ONEillusion is the international broker, instated by the Association of Over-the-Counter Brokers® of Poland, that has the ability to provide its clients with consistent results and light-speed trade processing for Foreigners inside and Polish citizens outside of Poland alike. 
+> We have a specialized, outside team of analysts providing us with data from institutions such as **Goldman Sachs**, **Rothschild & Co.**, **CBH Compagnie Bancaire Helvétique**, and others.
 
-> We have a specialized, outside team of analysts providing us with data from institutions like **Goldman Sachs**, **Rothschild & Co.**, **CBH Compagnie Bancaire Helvétique**, and others.
-
-> To help ***our clients*** avoid losses, we have created comprehensive training courses you can easily sign up for.
-
----
-
->> Our mission is to make the market *more* **profitable** for ***EVERYONE***.
-
-*Call or meet with your closest ONEillusion™ broker to register.*
+> To help ***our clients*** avoid inaccurate trading decisions, we have instated comprehensive training courses you can easily sign up for.
 
 ---
 
-ONEillusion™ by the Związek Maklerów Rynku Pozagiełdowego® © 2025 | *This is a backup site in case of technical issues.*
+>> Our mission is to make the market *more* **profitable** using.
+
+*Call or meet with your closest Currington Sterling® broker to register.*
+
+---
+
+*Currington Sterling®* by Currington Securities® © 2025 | *This is a backup site in case of technical issues.*
+![89cbb8b2-8a7f-4349-ac7b-88bff8aeeb07](https://github.com/user-attachments/assets/41cafcf5-c32c-4d4a-90e0-ab5534b2e6c8)
