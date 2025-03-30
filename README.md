@@ -1,9 +1,9 @@
-## **Currington Sterling®**
-# ***The Brokerage outside & inside of Wall Street***
+# **Currington Sterling®**
+## ***The Brokerage outside & inside of Wall Street***
 ---
 ![89cbb8b2-8a7f-4349-ac7b-88bff8aeeb07](https://github.com/user-attachments/assets/41cafcf5-c32c-4d4a-90e0-ab5534b2e6c8)
 ---
-## **So, What Exactly is Currington Sterling®?**
+### **So, What Exactly is Currington Sterling®?**
 ---
 
 > Currington Sterling, a distinguished subsidiary of Currington Securities®, stands as the premier European brokerage firm renowned for its unwavering commitment to excellence, precision, and trust. With an unparalleled ability to execute trades at lightning speed across both Over-the-Counter (OTC) and Exchange markets, we deliver consistent and strategic results to our esteemed clientele.
