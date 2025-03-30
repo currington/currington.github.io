@@ -1,4 +1,4 @@
-# **Currington Sterling®**
+## **Currington Sterling®**
 # ***The Brokerage outside & inside of Wall Street***
 ---
 ![89cbb8b2-8a7f-4349-ac7b-88bff8aeeb07](https://github.com/user-attachments/assets/41cafcf5-c32c-4d4a-90e0-ab5534b2e6c8)
